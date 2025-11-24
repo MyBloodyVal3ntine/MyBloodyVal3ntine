@@ -2,4 +2,4 @@
 <div align="center">
 <div align="center">
 
-  Jaysper & Thomas . he/him & he/him . sys of 90+  </div>
+  Jaysper & Thomas . he/pup & he/him . sys of 90+  </div>

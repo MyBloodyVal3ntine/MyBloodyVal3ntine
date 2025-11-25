@@ -6,4 +6,4 @@
 
   Jaysper & Thomas . he/pup & he/him . sys of 90+  </div>
 
-  <img src="https://i.pinimg.com/1200x/5e/78/9f/5e789f2a33f28502f672b66ec8edb827.jpg">
+  <img src="https://file.garden/aMdTzwTXzSnJl1HQ/banner's%202/Screenshot%202025-11-25%2010.08.57%20PM.png">
